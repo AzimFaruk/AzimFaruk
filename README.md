@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AzimFaruk
+- 👀 My hobby is Coding..
+- 🌱 I have a YouTube channel @Coding With Azim
+- 📫 How to reach me ... @Subscribe me in YouTube
